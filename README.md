@@ -4,4 +4,4 @@ Other than programming, I also have several self-taught digital skills such as i
 
 If you would like to reach out, then please email me at -
 tonomastroianni@gmail.com
-- Thanks!
+Thanks!
